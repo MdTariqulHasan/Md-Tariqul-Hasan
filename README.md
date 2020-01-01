@@ -1,0 +1,2 @@
+# Md-Tariqul-Hasan
+My name is Tariqul Hasan Toru. I am a Graphic Designer. I have completed my graduation on Graphic Design &amp; Multimedia from Shanto-Mariam University of Creative Technology which is the best design university in this region Dhaka, Bangladesh. Approximately, I have more than 5 years of experience in adobe Photoshop and Illustrator. I like Stationery design, Logo Design, Digital Illustration much even I do packaging &amp; label design, I do product modelling to by 3Ds Max. For more please feel free to contact me here.
